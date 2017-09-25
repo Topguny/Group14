@@ -1,4 +1,4 @@
-# Day Two Food
+# Day 2 Food
 
 ### Breakfast
 7:30 AM - 8:15 AM  
