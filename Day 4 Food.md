@@ -12,5 +12,5 @@ Estimated $10 -$20 per person.
 
 ### Dinner
 6:00 PM - 7:00 PM  
-Patsy's Pizzeria : 61 W 74th St
+Patsy's Pizzeria : 61 W 74th St  
 Around $15 - $20 per person.  
